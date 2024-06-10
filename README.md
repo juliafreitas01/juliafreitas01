@@ -8,4 +8,8 @@
 
 -Utilizo esse espaço para minha organização e compartilhamento dos meus projetos desenvolvidos 
 
-##Voce pode entrar em contato comigo na Escola Estadual Professor João Dionisio 
+##Voce pode entrar em contato comigo 📫
+
+juliafreitas1616@gmail.com.br
+
+@euujuhfreitassx
